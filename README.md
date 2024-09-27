@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...B.sc C.sc with AI
 - 💞️ I’m looking to collaborate on ...New project
 - 📫 How to reach me ...imi012@sacas.ac.in
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...
 
 <!---
