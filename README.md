@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mohammed Irfan I
-- 👀 I’m interested in ...Creative things to do
+- 👀 I’m interested in ...Searching
 - 🌱 I’m currently learning ...B.sc C.sc with AI
 - 💞️ I’m looking to collaborate on ...New project
 - 📫 How to reach me ...imi012@sacas.ac.in
